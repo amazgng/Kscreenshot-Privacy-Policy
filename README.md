@@ -1,0 +1,1 @@
+# Kscreenshot-Privacy-Policy
